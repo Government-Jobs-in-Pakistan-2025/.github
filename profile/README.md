@@ -90,13 +90,13 @@ Below is a table of current government job openings:
 | Medical Officer           | Health Department    | March 12, 2025    |
 | Officer Grade-II          | State Bank of Pakistan | March 18, 2025 |
 
-**For more job listings, visit [[paknoukri.com](https://paknoukri.com/step-by-step-guide-to-applying-for-government-jobs-in-pakistan-2025/#google_vignette)](#) for daily updates.**
+**For more job listings, visit [[paknoukri.com](https://paknoukri.com/step-by-step-guide-to-applying-for-government-jobs-in-pakistan-2025/#google_vignette)] for daily updates.**
 
 
 ## note
 Applying for government jobs in Pakistan requires thorough research and a step-by-step approach. Stay updated with the latest job listings, ensure you meet the eligibility criteria, and follow the application process carefully. 
 
-🚀 **Don’t miss out on new opportunities! Subscribe to [paknoukri.com](#) for instant job alerts.** 
+🚀 **Don’t miss out on new opportunities! Subscribe to [[paknoukri.com](https://paknoukri.com/)] for instant job alerts.** 
 
 Best of luck with your government job search!
 
